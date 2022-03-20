@@ -1,7 +1,8 @@
 ### Hi there 👋
 
+<img width="477" alt="Captura de pantalla 2022-03-21 a las 0 22 54" src="https://user-images.githubusercontent.com/94982014/159190484-52fa79f1-0c91-49fa-bfed-b9110da5538b.png">
 
-![-5814419416023153509_121](https://user-images.githubusercontent.com/94982014/159190404-347599a7-9b56-4fc7-b0f1-6661e4999040.jpg)
+
 
 
 <!--
